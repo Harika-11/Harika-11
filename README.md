@@ -6,7 +6,7 @@
 
 💬 Have any questions about software development, programming, or technology in general? Feel free to reach out! I'm always happy to share my knowledge and engage in stimulating conversations.
 
-📫 You can reach me via email at your.email@example.com or connect with me on LinkedIn here.
+📫 You can reach me via email at your email harikareddy082@gmail.com or connect with me on LinkedIn here.
 
 😄 Pronouns: She/Her
 
